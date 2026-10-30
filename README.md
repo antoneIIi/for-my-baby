@@ -4,7 +4,7 @@
 
 <img align="right" src=https://file.garden/aeWblX8drAn4J6VK/ezgif.com-effects.gif width="310"> <img src=https://file.garden/aeWblX8drAn4J6VK/Untitled397_20261029203448.png width="290">
 
- <img src=https://file.garden/aeWblX8drAn4J6VK/Untitled388_20261029192152.png width="100"> <img src="https://file.garden/aeWblX8drAn4J6VK/ezgif.com-gif-maker%20(2).gif" width="40">
+<img src="https://file.garden/aeWblX8drAn4J6VK/ezgif.com-gif-maker%20(2).gif" width="40"> <img src=https://file.garden/aeWblX8drAn4J6VK/Untitled388_20261029192152.png width="100"> 
 
 ᵒʳ $\color{#F7D4E4}{\text{𝗟u}}$ㅤㅤ ⑬ ʸ~~ʳˢ~~ㅤ  ݁ ౨ ݂۫  ㅤ**𝗦he** ~~ʰᵉʳ~~
 
