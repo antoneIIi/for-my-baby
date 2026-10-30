@@ -6,7 +6,7 @@
 
  <img src=https://file.garden/aeWblX8drAn4J6VK/Untitled388_20261029192152.png width="100"> <img src="https://file.garden/aeWblX8drAn4J6VK/ezgif.com-gif-maker%20(2).gif" width="40">
 
-ᵒʳ $\color{#F7D4E4}{\text{𝗖hαɾlie}}$ㅤㅤ ⑬ ʸ~~ʳˢ~~ㅤ  ݁ ౨ ݂۫  ㅤ**𝗦he** ~~ʰᵉʳ~~
+ᵒʳ $\color{#F7D4E4}{\text{𝗟u}}$ㅤㅤ ⑬ ʸ~~ʳˢ~~ㅤ  ݁ ౨ ݂۫  ㅤ**𝗦he** ~~ʰᵉʳ~~
 
  $\color{#2F2B2A}{\text{ARG}}$ ࣪.ㅤ**S**p**S**<ins>o </ins>ㅤ <img src=https://file.garden/aeWblX8drAn4J6VK/ezgif.com-gif-maker%20(7).gif width="40">ㅤ $\color{#F7D4E4}{\text{𝗕𝗙𝗙}}$ 𝗞imi **~~♡~~**
  
