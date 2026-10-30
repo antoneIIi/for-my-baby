@@ -6,14 +6,18 @@
 
  <img src=https://file.garden/aeWblX8drAn4J6VK/Untitled388_20261028215005.png width="100"> <img src="https://file.garden/aeWblX8drAn4J6VK/tumblr_7ad8cc7c7584ca7740b95c38cc7ef02a_77f3e876_100.gif-ezgif.com-resize.webp" width="40">
 
-ᵒʳ $\color{#C6F4D9}{\text{𝗖hαɾlie}}$ㅤㅤ ⑭ ʸ~~ʳˢ~~ㅤ  ݁ ౨ ݂۫  ㅤ**𝗦he** ~~ʰᵉʳ~~
+ᵒʳ $\color{#C6F4D9}{\text{𝗖hαɾlie}}$ㅤㅤ ⑭ ʸ~~ʳˢ~~ㅤ  ݁ ౨ ݂۫  ㅤ**He** ~~ᵃⁿʸ~~
 
- $\color{#624037}{\text{中国人}}$ ࣪.ㅤ**S**x**S**<ins>p </ins>ㅤ <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_2041b2da0258f70578efeb48fc2bc4b9_e538a2c7_100.gif-ezgif.com-resize.webp width="30">ㅤ $\color{#C6F4D9}{\text{𝗯𝗳𝗳}}$ 𝗞imi **~~♡~~**
+ $\color{#624037}{\text{中国人}}$ ࣪.ㅤ**S**x**S**<ins>p </ins>ㅤ <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_2041b2da0258f70578efeb48fc2bc4b9_e538a2c7_100.gif-ezgif.com-resize.webp width="30">ㅤ $\color{#C6F4D9}{\text{已婚}}$ 𝗟u **~~♡~~**
  
 
-<ins>→</ins>  **BASIC** ᴰᴺᴵㅤ . ˚⊹ㅤ $\color{#C6F4D9}{\text{EH9}}$ · <ins>JB5 </ins> & $\color{#624037}{\text{I}}$ **lover**
+<ins>→</ins>  ₙₒ  **DNI**ㅤ . ˚⊹ㅤ $\color{#C6F4D9}{\text{KA12}}$ · <ins>MV3 </ins> & $\color{#624037}{\text{CL16}}$ **情人**
 
-**(** $\color{white}{\text{𝟮𝗢}}$ ㅤ**♡** $\color{#C6F4D9}{\text{ㅤ𝗜𝗢}}$ ㅤ**♡** $\color{#624037}{\text{ㅤ𝟮𝟲}}$ **)**
+ $\color{white}{\text{𝗠αtch}}$ ㅤ**♡** $\color{#C6F4D9}{\text{ㅤաith}}$ ㅤ 
+<a href="https://github.com/lu4n44">
+<img src="https://file.garden/aeWblX8drAn4J6VK/tumblr_26707e65ac6847ae80c505da7d92cb72_4f8c750f_400.gif-ezgif.com-crop.webp" width="26"></img>
+ </a>
+ 
 
 <img src=https://file.garden/aeWblX8drAn4J6VK/stamp.gif width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp2.png width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp3.png width="90">
  <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_00898addc954e5500e56ac1101d5de16_38e65cf4_1280.gif.webp width="400">
